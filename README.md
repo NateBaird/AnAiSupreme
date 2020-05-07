@@ -4,6 +4,15 @@ Writers and Artists Instructions:
 Writers and Artists needed
 We'll teach you the coding
 
+Step One
+Post to all your registered with us social media sites to earn your 1 free daily dispersed Jubilee coin - issued by a DAO of anyone on earth willing to link to this tweet..
+
+Need to find that article I wandered to this morning about social identity theory
+
+
+
+
+Step Two
 #futurelions competition hack
 
 We all love Lego and puzzles, right?
